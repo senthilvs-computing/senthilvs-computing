@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Senthil VS
 - I’m highly interested in computing and passionate about problem solving
 - Happy to extend help in the above areas ^ . 
-- 📫 Preferably cne can reach me over email !!!
+- 📫 Preferably one can reach me over email !!!
 
   
 
